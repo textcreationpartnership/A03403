@@ -33,7 +33,6 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-TWO Most remarkable and true Histories, which hapned this present yeare, 1619.The one relating how 
 #####Body#####
 
 1. A strange and wonderfull Relation, of Elizabeth Goossens Taets, dwelling in the long Street by Saint Georges Church in the Towne of Amers-foord by Vtrecht in the Low-Countries, who after 25. years inhability and weakenesse of her members, was miraculously restored to her former health, the 29. of August last. 1619.
